@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Hororoma.github.io/rsschool-cv/cv
